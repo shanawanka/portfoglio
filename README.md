@@ -62,6 +62,6 @@ Customized Lansweeper for efficient IT Asset Management (ITAM), enhancing tracki
 - 🔗 [LinkedIn](https://it.linkedin.com/in/shanawanka)  
 - 🐦 [Twitter](#)  
 - 📷 [Instagram](#)  
-- 📧 Email: [your-email@example.com](mailto:shanawanka.com)  
+- 📧 Email: [shanawanka@gmail.com](mailto:shanawanka.com)  
 
 ---  
